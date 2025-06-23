@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Machine learning**
 
-- 👯 New Skills I'm Working on **#keephustling**
+- 👯 Keep on Improving myself day by day **#keephustling**
 
 - 📫 How to reach me **tusharbansal0214@gmail.com**
 
